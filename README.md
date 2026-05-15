@@ -10,7 +10,7 @@
 🎯 Goal: Become someone who creates value and improves every day
 
 ### 📫 Connect with me
-- 📧 Email: hoangngocphuongcute@gmail.com  | Zalo: 0344633262
+- 📧 Email: hoangngocphuongcute@gmail.com  
 - 🌐 Always open to learning & collaboration  
 
 ---
