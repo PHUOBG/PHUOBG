@@ -12,8 +12,3 @@
 ### 📫 Connect with me
 - 📧 Email: hoangngocphuongcute@gmail.com  
 - 🌐 Always open to learning & collaboration  
-
----
-<p align="center">
-  ⭐ Thanks for visiting my profile!
-</p>
