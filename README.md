@@ -5,7 +5,7 @@
 </p>
 
 🌟 About me
-🎓 I'm currently a first-year student, exploring different fields to find what I truly enjoy
+🎓 I'm currently a freshman , exploring different fields to find what I truly enjoy
 🔥 Trying to become 1% better every day
 🎯 Goal: Become someone who creates value and improves every day
 
