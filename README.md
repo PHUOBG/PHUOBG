@@ -5,11 +5,10 @@
 </p>
 ---
 ### 🌟 About me
-- 🎌 I love watching anime (my favorite character is Rem 💙)
-- 🎓 I'm currently a first-year student, exploring different fields to find what I truly enjoy
-- 🔥 Trying to become 1% better every day
-- 🎯 Goal: Become someone who creates value and improves every day
-- 🐞 BẢNH code đến u40 về quê bán bún bò
+* 🎌 I love watching anime (my favorite character is Rem 💙)
+* 🎓 I'm currently a first-year student, exploring different fields to find what I truly enjoy, 🔥 Trying to become 1% better every day
+* 🎯 Goal: Become someone who creates value and improves every day
+-* 🐞 BẢNH code đến u40 về quê bán bún bò
 ---
 
 ### 📫 Connect with me
